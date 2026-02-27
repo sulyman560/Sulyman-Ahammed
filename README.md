@@ -1,2 +1,2 @@
 # Sulyman-Ahammed
-I am a professional Web  Designer &amp; full stack Web Developer
+I am a professional Web  Designer &amp; Web Developer.
